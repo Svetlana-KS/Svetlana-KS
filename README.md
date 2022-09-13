@@ -8,6 +8,6 @@
 
 - [Linkedin](https://www.linkedin.com/in/svitlana-kostromitina/)
 
-- E-mail: kostromitina.sveta@gmail.com
+- **E-mail:** kostromitina.sveta@gmail.com
 
-- Моб. телефон: +38 050 970 28 65
+- **Моб. телефон:** +38 050 970 28 65
